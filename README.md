@@ -41,4 +41,4 @@
 
 ---
 **Контакты:**
-Алексей Ряховский | [t.me/ryakhovskiyy]
+Алексей Ряховский | [Telegram](t.me/ryakhovskiyy)
